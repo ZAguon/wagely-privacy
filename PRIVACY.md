@@ -23,4 +23,4 @@ Wagely does not knowingly collect information from anyone, including children.
 If this policy changes, the updated version will be posted at this page with a new date.
 
 ## Contact
-Questions about this policy: [YOUR EMAIL]
+Questions about this policy: zackaguon@gmail.com
